@@ -4,5 +4,5 @@
   
 - 📫 How to reach me: saarikass501@gmail.com
   
-- ⚡ Fun fact: I love traveling and listening to music
+- ⚡ Fun fact: I love travelling and listening to music
 
